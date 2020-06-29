@@ -1,1 +1,0 @@
-# WHU-AI-Hackathon-I
